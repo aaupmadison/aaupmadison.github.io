@@ -29,3 +29,8 @@ on a sliding scale by income.
 
 - At large members of the Executive Committee: [Matthew Hora](https://eps.education.wisc.edu/fac-staff/hora-matthew/),
 [Michael Childers](https://schoolforworkers.wisc.edu/michael-childers/)
+
+### Contact us
+
+Contact us at
+[`aaup.uwmadison@gmail.com`](mailto:aaup.uwmadison@gmail.com).

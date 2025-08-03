@@ -64,9 +64,9 @@ individual, except in consideration of services rendered.
 
 Eligibility for membership in this chapter shall extend to all
 qualified members of the Association, as set forth in Article II of
-the AAUP Constitution, who identify the University of
-Wisconsin-Madison as their institution. All chapter members may vote
-in chapter matters.
+the [AAUP Constitution](https://www.aaup.org/about/aaup-governance/aaup-constitution),
+who identify the University of Wisconsin-Madison as their institution.
+All chapter members may vote in chapter matters.
 
 
 ### Article IV: Officers and Organization

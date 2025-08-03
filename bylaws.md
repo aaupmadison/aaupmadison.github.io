@@ -235,3 +235,4 @@ specified above.
 
 
 _Enacted this Second day of September in the year 2015._
+([pdf](docs/AAUP-MADISON-Bylaws-20150902.pdf))

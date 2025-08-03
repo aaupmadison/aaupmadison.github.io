@@ -1,6 +1,6 @@
 ---
 layout: page
-title: Bylaws
+title: Bylaws of AAUP UW-Madison
 description: Bylaws of the UW-Madison chapter of the AAUP (2015-09-02)
 ---
 
@@ -179,7 +179,7 @@ of these committees shall be appointed by the president, in
 consultation with the executive committee.
 
 
-Article VII: Meetings
+### Article VII: Meetings
 
 The chapter shall hold regular meetings at least twice each academic
 year.
@@ -212,13 +212,13 @@ percent of the members directing the president to call a special
 meeting.
 
 
-Article VIII: Dissolution
+### Article VIII: Dissolution
 
 Upon dissolution of the chapter, its assets shall be distributed to
 the Association, which is a charitable and educational organization.
 
 
-Article IX: Amendments
+### Article IX: Amendments
 
 These bylaws may be amended by majority vote of the members, provided
 that a notice setting forth the proposed amendment or amendments, an
@@ -227,7 +227,7 @@ to each member at least seven days prior to the vote. Any member of
 the chapter may initiate an amendment.
 
 
-Article X: Rules of Order
+### Article X: Rules of Order
 
 The most recent edition of Roberts Rules of Order Newly Revised shall
 be the authority for this chapter in matters of procedure not

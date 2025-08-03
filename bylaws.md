@@ -16,7 +16,7 @@ the Association).
 The purposes of this chapter are to:
 
 1. Support the policies and goals of the Association as set forth in
-Article I of the AAUP constitution, and in all matters act in harmony
+Article I of the [AAUP constitution](https://www.aaup.org/about/aaup-governance/aaup-constitution), and in all matters act in harmony
 with the principles and procedures of the national Association and its
 constitution;
 
@@ -73,7 +73,7 @@ All chapter members may vote in chapter matters.
 
 Eligibility for membership in this chapter shall extend to all
 qualified members of the Association, as set forth in Article II of
-the AAUP Constitution, who identify the University of
+the [AAUP Constitution](https://www.aaup.org/about/aaup-governance/aaup-constitution), who identify the University of
 Wisconsin-Madison as their institution. All chapter members may vote
 in chapter matters.
 

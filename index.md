@@ -12,10 +12,15 @@ academic staff that promotes academic freedom and shared governance.
 
 ### Join us
 
-Membership is open to all academic staff and faculty. Sign up at the
-[AAUP national page](https://www.aaup.org/membership/join)
-and your name will be forwarded to the local chapter. Yearly dues are
-on a sliding scale by income.
+Membership is open to all UW-Madison graduate students, academic
+staff, faculty, researchers, and teachers. (See Article II of the
+[AAUP
+Constitution](https://www.aaup.org/about/aaup-governance/aaup-constitution).)
+
+Sign up at the [AAUP national
+page](https://www.aaup.org/membership/join) and your name will be
+forwarded to the local chapter. Yearly dues are on a sliding scale by
+income.
 
 ### Officers (2025-2026)
 

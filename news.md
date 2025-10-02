@@ -4,7 +4,7 @@ title: News
 description: News items from the UW-Madison chapter of the American Association of University Professors
 ---
 
-### Letter to Chancellor Mnookin and President Rothman
+### _2025-10-02_ Letter to Chancellor Mnookin and President Rothman
 
 The Executive Committee of the UW-Madison chapter of the AAUP, together
 with the boards of [WUU](https://wuu.info),

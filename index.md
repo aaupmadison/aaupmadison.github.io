@@ -31,6 +31,11 @@ academic staff that promotes academic freedom and shared governance.
   opposing the contract, but the next faculty senate meeting is Nov 3,
   which is after the Trump administration's Oct 20 deadline.
 
+- Join the [No Kings March and Rally](https://www.mobilize.us/nokings/event/843062/)
+  on Saturday 18 Oct, meeting at McPike Park ([202 S Ingersoll St](https://osm.org/go/ZVE6HgPhO))
+  at 2pm and marching to the Capitol for a 3pm rally. If you're not in
+  Madison, [find a rally near you](https://www.mobilize.us/nokings/).
+
 - The Executive Committee of the UW-Madison chapter of the AAUP, together
 with the boards of [WUU](https://wuu.info),
 [UFAS](https://ufas223.org), and [TAA](https://taa-madison.org), wrote

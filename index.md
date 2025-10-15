@@ -24,9 +24,12 @@ academic staff that promotes academic freedom and shared governance.
 
 ### Recent activity
 
-- We are holding a member meeting via zoom on Saturday 11 Oct,
-  2-3pm Central. If you would like to participate, please [email
-  us](mailto:aaupuwmadison@gmail.com) to get the link.
+- [**Sign a
+  petition**](https://actionnetwork.org/petitions/reject-the-trump-administrations-compact-for-academic-excellence-in-higher-education?source=direct_link&)
+  urging UW-Madison to reject the Trump administration's "compact".
+  A group of faculty are proposing a faculty senate resolution
+  opposing the contract, but the next faculty senate meeting is Nov 3,
+  which is after the Trump administration's Oct 20 deadline.
 
 - The Executive Committee of the UW-Madison chapter of the AAUP, together
 with the boards of [WUU](https://wuu.info),
@@ -43,7 +46,9 @@ and [pdf](assets/free_speech_letter_to_Mnookin_Rothman.pdf).)
   agree to a ["compact"](https://www.nytimes.com/2025/10/02/us/politics/trump-college-funding.html?unlocked_article_code=1.rU8.cmw_.cJ9eFeKx7VIh&smid=url-share) in exchange for federal research funds.
   See [AAUP's
   response](https://www.aaup.org/news/universities-must-reject-trump-admin-loyalty-oath-compacts):
-  Universities must reject "Loyalty Oath" compacts.
+  Universities must reject "Loyalty Oath" compacts. (The "compact" has
+  now been extended to all universities, with administrators having
+  until Oct 20 to respond.)
 
 - The UW System administration is introducing a [new policy on core
   general education requirements](https://www.wisconsin.edu/act-15-cger/) in response to

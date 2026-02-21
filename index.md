@@ -14,10 +14,14 @@ academic staff that promotes academic freedom and shared governance.
 
 - [Three Provost candidates
   visits](https://provost.wisc.edu/2025/10/30/provost-and-vice-chancellor-for-academic-affairs-search-2/)
-  on Monday (Feb 23), Tuesday (Feb 24), and Wednesday (Feb 27), with public presentations **in-person
-  only** in [7560 Morgridge Hall](https://map.wisc.edu/s/oqe065zc). We need as many people to attend and
+  on Monday (Feb 23), Tuesday (Feb 24), and Friday (Feb 27), with
+  public presentations 9:30-10:30am each day **in-person
+  only** in [7560 Morgridge Hall](https://map.wisc.edu/s/oqe065zc).
+
+  We need as many people to attend and
   ask questions as possible. Share your impressions and concerns with
   us at [`aaup.uwmadison@gmail.com`](mailto:aaup.uwmadison@gmail.com).
+
   See [more details about the search, including the search
   committee](https://news.wisc.edu/search-begins-for-new-provost-2/).
   Comments about the candidate need to be submitted by 5pm on Sunday,

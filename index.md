@@ -24,7 +24,7 @@ academic staff that promotes academic freedom and shared governance.
 
   See [more details about the search, including the search
   committee](https://news.wisc.edu/search-begins-for-new-provost-2/).
-  Comments about the candidate need to be submitted by 5pm on Sunday,
+  Comments about the candidates need to be submitted by 5pm on Sunday,
   March 1, we think via [this
   link](https://www.imsearch.com/open-searches/university-wisconsin-madison/provost-and-vice-chancellor-academic-affairs).
 

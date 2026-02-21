@@ -10,6 +10,24 @@ The University of Wisconsin-Madison chapter of the <a href="https://aaup.org">Am
 Association of University Professors (AAUP)</a> is an organization of faculty and
 academic staff that promotes academic freedom and shared governance.
 
+### Take action
+
+- [Three Provost candidates
+  visits](https://provost.wisc.edu/2025/10/30/provost-and-vice-chancellor-for-academic-affairs-search-2/)
+  on Monday (Feb 23), Tuesday (Feb 24), and Wednesday (Feb 27), with public presentations **in-person
+  only** in [7560 Morgridge Hall](https://map.wisc.edu/s/oqe065zc). We need as many people to attend and
+  ask questions as possible. Share your impressions and concerns with
+  us at [`aaup.uwmadison@gmail.com`](mailto:aaup.uwmadison@gmail.com).
+  See [more details about the search, including the search
+  committee](https://news.wisc.edu/search-begins-for-new-provost-2/).
+  Comments about the candidate need to be submitted by 5pm on Sunday,
+  March 1, we think via [this
+  link](https://www.imsearch.com/open-searches/university-wisconsin-madison/provost-and-vice-chancellor-academic-affairs).
+
+  - Candidate 1: [Anna
+  Stenport](https://www.franklin.uga.edu/directory/people/anna-stenport),
+  Dean of College of Arts and Sciences at University of Georgia ([CV](/assets/provost2025/stenport_cv.pdf)).
+
 ### Recent wins
 
 - On 30 Sept 2025, the AAUP national organization won an important

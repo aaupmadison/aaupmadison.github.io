@@ -32,6 +32,10 @@ academic staff that promotes academic freedom and shared governance.
   Stenport](https://www.franklin.uga.edu/directory/people/anna-stenport),
   Dean of College of Arts and Sciences at University of Georgia ([CV](/assets/provost2025/stenport_cv.pdf)).
 
+  - Candidate 2: [John
+    Zumbrunnen](https://polisci.wisc.edu/staff/john-zumbrunnen/),
+    Interim Provost, UW-Madison ([CV](/assets/provost2025/zumbrunnen_cv.pdf))
+
 ### Recent wins
 
 - On 30 Sept 2025, the AAUP national organization won an important

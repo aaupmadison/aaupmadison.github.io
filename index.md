@@ -25,12 +25,12 @@ academic staff that promotes academic freedom and shared governance.
   See [more details about the search, including the search
   committee](https://news.wisc.edu/search-begins-for-new-provost-2/).
   Comments about the candidates need to be submitted by 5pm on Sunday,
-  March 1, we think via [this
-  link](https://www.imsearch.com/open-searches/university-wisconsin-madison/provost-and-vice-chancellor-academic-affairs).
+  March 1, we think candidate-specific feedback forms at [this
+  link](https://provost.wisc.edu/2025/10/30/provost-and-vice-chancellor-for-academic-affairs-search-2/).
 
-  - Candidate 1: [Anna
-  Stenport](https://www.franklin.uga.edu/directory/people/anna-stenport),
-  Dean of College of Arts and Sciences at University of Georgia ([CV](/assets/provost2025/stenport_cv.pdf)).
+  - Candidate 1: [Anna Stenport](https://www.franklin.uga.edu/directory/people/anna-stenport),
+    Dean of College of Arts and Sciences at University of Georgia
+    ([CV](/assets/provost2025/stenport_cv.pdf) | [feedback survey](https://www.research.net/r/UWM_Provost_Finalist1AS)).
 
   - Candidate 2: [John
     Zumbrunnen](https://polisci.wisc.edu/staff/john-zumbrunnen/),

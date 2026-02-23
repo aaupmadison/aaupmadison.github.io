@@ -25,7 +25,7 @@ academic staff that promotes academic freedom and shared governance.
   See [more details about the search, including the search
   committee](https://news.wisc.edu/search-begins-for-new-provost-2/).
   Comments about the candidates need to be submitted by 5pm on Sunday,
-  March 1, we think candidate-specific feedback forms at [this
+  March 1, via candidate-specific feedback forms at [this
   link](https://provost.wisc.edu/2025/10/30/provost-and-vice-chancellor-for-academic-affairs-search-2/).
 
   - Candidate 1: [Anna Stenport](https://www.franklin.uga.edu/directory/people/anna-stenport),

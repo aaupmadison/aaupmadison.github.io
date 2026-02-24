@@ -34,7 +34,8 @@ academic staff that promotes academic freedom and shared governance.
 
   - Candidate 2: [John
     Zumbrunnen](https://polisci.wisc.edu/staff/john-zumbrunnen/),
-    Interim Provost, UW-Madison ([CV](/assets/provost2025/zumbrunnen_cv.pdf))
+    Interim Provost, UW-Madison
+    ([CV](/assets/provost2025/zumbrunnen_cv.pdf) | [feedback survey](https://www.research.net/r/UWM_Provost_Finalist2JZ))
 
 ### Recent wins
 

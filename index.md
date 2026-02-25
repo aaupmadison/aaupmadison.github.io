@@ -37,7 +37,7 @@ academic staff that promotes academic freedom and shared governance.
     Interim Provost, UW-Madison
     ([CV](/assets/provost2026/zumbrunnen_cv.pdf) | [feedback survey](https://www.research.net/r/UWM_Provost_Finalist2JZ))
 
-  - Candidate 3: [Charles Martinez], Dean of College of Education at
+  - Candidate 3: [Charles Martinez](https://education.utexas.edu/faculty/charles_martinez/), Dean of College of Education at
     University of Texas, Austin
     ([CV](/assets/provost2026/martinez_cv.pdf) | [feedback survey](https://www.research.net/r/UWM_Provost_Finalist3CM))
 

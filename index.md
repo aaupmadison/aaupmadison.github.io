@@ -55,13 +55,6 @@ academic staff that promotes academic freedom and shared governance.
 
 ### Recent activity
 
-- [**Sign a
-  petition**](https://actionnetwork.org/petitions/reject-the-trump-administrations-compact-for-academic-excellence-in-higher-education?source=direct_link&)
-  urging UW-Madison to reject the Trump administration's "compact".
-  A group of faculty are proposing a faculty senate resolution
-  opposing the contract, but the next faculty senate meeting is Nov 3,
-  which is after the Trump administration's Oct 20 deadline.
-
 - The Executive Committee of the UW-Madison chapter of the AAUP, together
 with the boards of [WUU](https://wuu.info),
 [UFAS](https://ufas223.org), and [TAA](https://taa-madison.org), wrote

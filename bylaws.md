@@ -71,11 +71,13 @@ All chapter members may vote in chapter matters.
 
 ### Article IV: Officers and Organization
 
-Eligibility for membership in this chapter shall extend to all
-qualified members of the Association, as set forth in Article II of
-the [AAUP Constitution](https://www.aaup.org/about/aaup-governance/aaup-constitution), who identify the University of
-Wisconsin-Madison as their institution. All chapter members may vote
-in chapter matters.
+The officers of this organization shall be the president, vice
+president, secretary, and treasurer. Initial officers of the
+organization shall serve from the time of adoption of the bylaws until
+an election can be held during the Spring 2016 semester, but no longer
+than 10 months. Except for initial officers, the term of office for
+officers shall be two years. Officers may serve no more than two
+consecutive terms.
 
 **President**: The duties of the president shall include carrying out
 the policies of the chapter, appointing all committees of the chapter,

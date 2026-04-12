@@ -12,34 +12,13 @@ academic staff that promotes academic freedom and shared governance.
 
 ### Take action
 
-- [Three Provost candidates
-  visits](https://provost.wisc.edu/2025/10/30/provost-and-vice-chancellor-for-academic-affairs-search-2/)
-  on Monday (Feb 23), Tuesday (Feb 24), and Friday (Feb 27), with
-  public presentations 9:30-10:30am each day **in-person
-  only** in [7560 Morgridge Hall](https://map.wisc.edu/s/oqe065zc).
+- May Day 2026 Day of Mass Action (Friday 2026-05-01):
 
-  We need as many people to attend and
-  ask questions as possible. Share your impressions and concerns with
-  us at [`aaup.uwmadison@gmail.com`](mailto:aaup.uwmadison@gmail.com).
+  - 11am ICE Out UW rally at Bascom Hall
+  - noon Voces de la Frontera rally at Library Mall
+  - 1pm March to the Capitol
+  - 2pm Rally at the Capitol
 
-  See [more details about the search, including the search
-  committee](https://news.wisc.edu/search-begins-for-new-provost-2/).
-  Comments about the candidates need to be submitted by 5pm on Sunday,
-  March 1, via candidate-specific feedback forms at [this
-  link](https://provost.wisc.edu/2025/10/30/provost-and-vice-chancellor-for-academic-affairs-search-2/).
-
-  - Candidate 1: [Anna Stenport](https://www.franklin.uga.edu/directory/people/anna-stenport),
-    Dean of College of Arts and Sciences at University of Georgia
-    ([CV](/assets/provost2026/stenport_cv.pdf) | [feedback survey](https://www.research.net/r/UWM_Provost_Finalist1AS)).
-
-  - Candidate 2: [John
-    Zumbrunnen](https://polisci.wisc.edu/staff/john-zumbrunnen/),
-    Interim Provost, UW-Madison
-    ([CV](/assets/provost2026/zumbrunnen_cv.pdf) | [feedback survey](https://www.research.net/r/UWM_Provost_Finalist2JZ))
-
-  - Candidate 3: [Charles Martinez](https://education.utexas.edu/faculty/charles_martinez/), Dean of College of Education at
-    University of Texas, Austin
-    ([CV](/assets/provost2026/martinez_cv.pdf) | [feedback survey](https://www.research.net/r/UWM_Provost_Finalist3CM))
 
 ### Recent wins
 
@@ -111,7 +90,7 @@ income.
 
 - Treasurer [Timothy Yu](https://english.wisc.edu/staff/yu-timothy/)
 
-- At large members of the Executive Committee: [Matthew Hora](https://eps.education.wisc.edu/fac-staff/hora-matthew/),
+- At large member of the Executive Committee:
 [Michael Childers](https://schoolforworkers.wisc.edu/michael-childers/)
 
 ### Contact us

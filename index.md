@@ -14,10 +14,10 @@ academic staff that promotes academic freedom and shared governance.
 
 - May Day 2026 Day of Mass Action (Friday 2026-05-01):
 
-  - 11am ICE Out UW rally at Bascom Hall
-  - noon Voces de la Frontera rally at Library Mall
-  - 1pm March to the Capitol
-  - 2pm Rally at the Capitol
+  - **11:00am** ICE Out UW rally at Bascom Hall
+  - **noon** Voces de la Frontera rally at Library Mall
+  - **1:00pm** March to the Capitol
+  - **2:00pm** Rally at the Capitol
 
 
 ### Recent wins

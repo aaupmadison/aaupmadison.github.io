@@ -18,7 +18,7 @@ academic staff that promotes academic freedom and shared governance.
 
 - Treasurer [Timothy Yu](https://english.wisc.edu/staff/yu-timothy/)
 
-- At large members of the Executive Committee: [Matthew Hora](https://eps.education.wisc.edu/fac-staff/hora-matthew/),
+- At large member of the Executive Committee:
 [Michael Childers](https://schoolforworkers.wisc.edu/michael-childers/)
 
 ### Contact us

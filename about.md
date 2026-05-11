@@ -8,7 +8,7 @@ The University of Wisconsin-Madison chapter of the <a href="https://aaup.org">Am
 Association of University Professors (AAUP)</a> is an organization of faculty and
 academic staff that promotes academic freedom and shared governance.
 
-### Officers (2025-2026)
+### Officers (2026-2027)
 
 - President [Karl Broman](https://kbroman.org)
 
@@ -18,8 +18,9 @@ academic staff that promotes academic freedom and shared governance.
 
 - Treasurer [Timothy Yu](https://english.wisc.edu/staff/yu-timothy/)
 
-- At large member of the Executive Committee:
+- At large members of the Executive Committee:
 [Michael Childers](https://schoolforworkers.wisc.edu/michael-childers/)
+and [Annie Menzel](https://gws.wisc.edu/staff/menzel-annie/)
 
 ### Contact us
 

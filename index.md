@@ -80,7 +80,7 @@ page](https://www.aaup.org/membership/join) and your name will be
 forwarded to the local chapter. Yearly dues are on a sliding scale by
 income.
 
-### Officers (2025-2026)
+### Officers (2026-2027)
 
 - President [Karl Broman](https://kbroman.org)
 
@@ -90,8 +90,9 @@ income.
 
 - Treasurer [Timothy Yu](https://english.wisc.edu/staff/yu-timothy/)
 
-- At large member of the Executive Committee:
+- At large members of the Executive Committee:
 [Michael Childers](https://schoolforworkers.wisc.edu/michael-childers/)
+and [Annie Menzel](https://gws.wisc.edu/staff/menzel-annie/)
 
 ### Contact us
 

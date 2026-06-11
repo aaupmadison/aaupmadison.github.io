@@ -12,12 +12,23 @@ academic staff that promotes academic freedom and shared governance.
 
 ### Take action
 
-- May Day 2026 Day of Mass Action (Friday 2026-05-01):
+The [UW-Madison Chancellor
+search](https://www.wisconsin.edu/news/archive/university-of-wisconsin-madison-chancellor-search-and-screen-committee-named)
+and
+[UW System President search](https://www.wisconsin.edu/presidential-search-2026/)
+are both underway.
 
-  - **11:00am** ICE Out UW rally at Bascom Hall
-  - **noon** Voces de la Frontera rally at Library Mall
-  - **1:00pm** March to the Capitol
-  - **2:00pm** Rally at the Capitol
+For the Chancellor search, the search committee is holding online
+listening sessions on June 15 and 22:
+
+- Monday 6/15 at 10am at <https://wisconsin-edu.zoom.us/j/91212046137>
+- Monday 6/22 at 2pm at <https://wisconsin-edu.zoom.us/j/92685272170>
+- or provide feedback at [this qualtrics form](https://uwsystemadmin.qualtrics.com/jfe/form/SV_3V2kXO2MZUKq1pQ)
+
+There was an in-person (and a bit online) listening session for the
+President search on 6/10. You can still provide feedback (through
+6/14) at [this form](https://uwsystemadmin.qualtrics.com/jfe/form/SV_dgL7I0nVkJooSBU?Q_CHL=qr).
+
 
 
 ### Recent wins

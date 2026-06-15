@@ -26,9 +26,9 @@ listening sessions on June 15 and 22:
 - or provide feedback at [this qualtrics form](https://uwsystemadmin.qualtrics.com/jfe/form/SV_3V2kXO2MZUKq1pQ)
 
 There was an in-person (and a bit online) listening session for the
-President search on 6/10. You can still provide feedback (through
-6/14) at [this form](https://uwsystemadmin.qualtrics.com/jfe/form/SV_dgL7I0nVkJooSBU?Q_CHL=qr).
-
+President search on 6/10. They stopped accepting feedback on 6/14.
+But keep an eye out for the finalists, who will make public
+presentations at UW-Madison, likely in August or September.
 
 
 ### Recent wins
@@ -40,7 +40,6 @@ President search on 6/10. You can still provide feedback (through
   [Read
   updates](https://www.aaup.org/about/programs/legal-program/aaup-litigation)
   about other recent AAUP litigation.
-
 
 
 ### Recent activity
@@ -71,7 +70,7 @@ and [pdf](assets/free_speech_letter_to_Mnookin_Rothman.pdf).)
   requirements at UW-Madison and other campuses. Comments must be
   [submitted
   online](https://www.wisconsin.edu/regents/draft-policy-proposals-for-comment/)
-  by Wednesday, 15 Oct 2025..
+  by Wednesday, 15 Oct 2025.
 
 - UW System administration also has a
   [workgroup](https://www.wisconsin.edu/act-15-workload/) working on

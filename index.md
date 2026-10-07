@@ -10,11 +10,11 @@ The University of Wisconsin-Madison chapter of the <a href="https://aaup.org">Am
 Association of University Professors (AAUP)</a> is an organization of faculty and
 academic staff that promotes academic freedom and shared governance.
 
-### Member gathering
+### Member gatherings
 
-Join us at the Memorial Union on Monday 2026-10-05 at 5pm, after the
+Join us at 5pm on the first Monday of each month at the Memorial Union, after each
 [Faculty Senate meeting](https://kb.wisc.edu/sof/page.php?id=92716).
-Depending on the weather, we'll either on the terrace or in the
+Depending on the weather, we'll be either on the terrace or in the
 Rathskellar.
 
 

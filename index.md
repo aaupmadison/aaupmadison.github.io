@@ -15,7 +15,7 @@ academic staff that promotes academic freedom and shared governance.
 Join us at 5pm on the first Monday of each month at the Memorial Union, after each
 [Faculty Senate meeting](https://kb.wisc.edu/sof/page.php?id=92716).
 Depending on the weather, we'll be either on the terrace or in the
-Rathskellar.
+Rathskellar. (_Nov 2, Dec 7, Feb 1, Mar 1, Apr 5, May 3_)
 
 
 ### Take action

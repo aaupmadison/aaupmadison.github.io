@@ -26,17 +26,12 @@ and
 [UW System President search](https://www.wisconsin.edu/presidential-search-2026/)
 are both underway.
 
-For the Chancellor search, the search committee is holding online
-listening sessions on June 15 and 22:
-
-- Monday 6/15 at 10am at <https://wisconsin-edu.zoom.us/j/91212046137>
-- Monday 6/22 at 2pm at <https://wisconsin-edu.zoom.us/j/92685272170>
-- or provide feedback at [this qualtrics form](https://uwsystemadmin.qualtrics.com/jfe/form/SV_3V2kXO2MZUKq1pQ)
-
-There was an in-person (and a bit online) listening session for the
-President search on 6/10. They stopped accepting feedback on 6/14.
-But keep an eye out for the finalists, who will make public
-presentations at UW-Madison, likely in August or September.
+For the President search, there will be a [forum for two
+finalists](https://news.wisc.edu/save-the-dates-help-shape-the-future-of-wisconsins-universities/)
+on Tuesday, Oct 27, 8am-noon in the Memorial Union Great Hall (4th
+floor). (There will be another forum at UW-Parkside on Monday, Oct
+26). The forums will be available virtually, but questions will only
+be taken from those attending in person.
 
 
 ### Recent wins

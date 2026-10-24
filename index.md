@@ -29,7 +29,7 @@ are both underway.
 For the President search, [three finalists have been
 announced](https://www.wisconsin.edu/presidential-search-2026/presidential-search-finalists/),
 and there will be a public forum on
-Tuesday, Oct 27, 8am-noon in the Memorial Union Great Hall (4th
+**Tuesday, Oct 27, 8am-noon** in the Memorial Union Great Hall (4th
 floor). (There will be another forum at UW-Parkside on Monday, Oct
 26). The forums will be available virtually, but questions will only
 be taken from those attending in person.

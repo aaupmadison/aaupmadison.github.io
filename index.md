@@ -38,7 +38,7 @@ be taken from those attending in person.
 - 9:30am - **[Steven Holley](https://olemiss.edu/profiles/sgholley.php)**, University of Mississippi
 - 11:00am - **[Tonjanita Johnson](https://uasystem.edu/directory/tonjanita-johnson/)**, University of Alabama System
 
-Biographies and CVs of the candidates are [available online](https://www.wisconsin.edu/presidential-search-2026/presidential-search-finalists/).
+Biographies and CVs of the candidates are [online](https://www.wisconsin.edu/presidential-search-2026/presidential-search-finalists/).
 
 <!--
 ### Recent wins

@@ -77,9 +77,9 @@ income.
 
 - Treasurer [Timothy Yu](https://english.wisc.edu/staff/yu-timothy/)
 
-- At large members of the Executive Committee:
+- At large member of the Executive Committee:
 [Michael Childers](https://schoolforworkers.wisc.edu/michael-childers/)
-and [Annie Menzel](https://gws.wisc.edu/staff/menzel-annie/)
+
 
 ### Contact us
 

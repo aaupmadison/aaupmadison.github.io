@@ -28,15 +28,15 @@ are both underway.
 
 For the President search, [three finalists have been
 announced](https://www.wisconsin.edu/presidential-search-2026/presidential-search-finalists/),
-and there will be a public forum on
-**Tuesday, Oct 27, 8am-noon** in the Memorial Union Great Hall (4th
-floor). (There will be another forum at UW-Parkside on Monday, Oct
-26). The forums will be available virtually, but questions will only
-be taken from those attending in person.
+and there was be a public forum on
+Tuesday, Oct 27, 8am-noon in the Memorial Union Great Hall (4th
+floor). (There was another forum at UW-Parkside on Monday, Oct
+26). The forums were available virtually, but questions were only
+taken from those attending in person.
 
-- 8:00am - **[Bernard Savarese](https://tennessee.edu/about/leadership/president/administration/bernie-savarese/)**, University of Tennessee System
-- 9:30am - **[Steven Holley](https://olemiss.edu/profiles/sgholley.php)**, University of Mississippi
-- 11:00am - **[Tonjanita Johnson](https://uasystem.edu/directory/tonjanita-johnson/)**, University of Alabama System
+- **[Bernard Savarese](https://tennessee.edu/about/leadership/president/administration/bernie-savarese/)**, University of Tennessee System
+- **[Steven Holley](https://olemiss.edu/profiles/sgholley.php)**, University of Mississippi
+- **[Tonjanita Johnson](https://uasystem.edu/directory/tonjanita-johnson/)**, University of Alabama System
 
 Biographies and CVs of the candidates are [online](https://www.wisconsin.edu/presidential-search-2026/presidential-search-finalists/).
 

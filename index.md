@@ -34,9 +34,9 @@ floor). (There was another forum at UW-Parkside on Monday, Oct
 26). The forums were available virtually, but questions were only
 taken from those attending in person.
 
-- **[Bernard Savarese](https://tennessee.edu/about/leadership/president/administration/bernie-savarese/)**, University of Tennessee System
-- **[Steven Holley](https://olemiss.edu/profiles/sgholley.php)**, University of Mississippi
-- **[Tonjanita Johnson](https://uasystem.edu/directory/tonjanita-johnson/)**, University of Alabama System
+- [Bernard Savarese](https://tennessee.edu/about/leadership/president/administration/bernie-savarese/), University of Tennessee System
+- [Steven Holley](https://olemiss.edu/profiles/sgholley.php), University of Mississippi
+- [Tonjanita Johnson](https://uasystem.edu/directory/tonjanita-johnson/), University of Alabama System
 
 Biographies and CVs of the candidates are [online](https://www.wisconsin.edu/presidential-search-2026/presidential-search-finalists/).
 

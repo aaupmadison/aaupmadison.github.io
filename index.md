@@ -21,23 +21,12 @@ Until spring comes, find us in the Rathskellar. (_Nov 2, Dec 7, Feb 1, Mar 1, Ap
 
 The [UW-Madison Chancellor
 search](https://www.wisconsin.edu/news/archive/university-of-wisconsin-madison-chancellor-search-and-screen-committee-named)
-and
-[UW System President search](https://www.wisconsin.edu/presidential-search-2026/)
-are both underway.
+is ongoing.
 
-For the President search, [three finalists have been
-announced](https://www.wisconsin.edu/presidential-search-2026/presidential-search-finalists/),
-and there was be a public forum on
-Tuesday, Oct 27, 8am-noon in the Memorial Union Great Hall (4th
-floor). (There was another forum at UW-Parkside on Monday, Oct
-26). The forums were available virtually, but questions were only
-taken from those attending in person.
-
-- [Bernard Savarese](https://tennessee.edu/about/leadership/president/administration/bernie-savarese/), University of Tennessee System
-- [Steven Holley](https://olemiss.edu/profiles/sgholley.php), University of Mississippi
-- [Tonjanita Johnson](https://uasystem.edu/directory/tonjanita-johnson/), University of Alabama System
-
-Biographies and CVs of the candidates are [online](https://www.wisconsin.edu/presidential-search-2026/presidential-search-finalists/).
+(The [UW System President search](https://www.wisconsin.edu/presidential-search-2026/)
+was just completed. Of three finalists, the regents chose
+[Tonjanita Johnson](https://uasystem.edu/directory/tonjanita-johnson/)
+from the University of Alabama.)
 
 <!--
 ### Recent wins

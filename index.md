@@ -25,7 +25,7 @@ is ongoing.
 
 (The [UW System President search](https://www.wisconsin.edu/presidential-search-2026/)
 was just completed. Of three finalists, the regents chose
-[Tonjanita Johnson](https://uasystem.edu/directory/tonjanita-johnson/)
+[Tonjanita (Tonja) Johnson](https://uasystem.edu/directory/tonjanita-johnson/)
 from the University of Alabama.)
 
 <!--

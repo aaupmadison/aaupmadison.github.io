@@ -26,7 +26,8 @@ will give public presentations in Tripp Commons at the Memorial Union:
 - Thursday, Nov 12, 4:30-5:30pm
 - Friday, Nov 13, 4:30-5:30pm
 
-[Submit questions for the finalists online](https://chancellorsearch.wisc.edu/submit-a-question-for-candidate-forums/).
+[Submit questions for the finalists online](https://chancellorsearch.wisc.edu/submit-a-question-for-candidate-forums/)
+by 5pm on Wednesday Nov 5.
 
 
 (The [UW System President search](https://www.wisconsin.edu/presidential-search-2026/)

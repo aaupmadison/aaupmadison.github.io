@@ -23,9 +23,9 @@ Three finalists in the [UW-Madison Chancellor
 search](https://www.wisconsin.edu/news/archive/university-of-wisconsin-madison-chancellor-search-and-screen-committee-named)
 will give public presentations in Tripp Commons at the Memorial Union:
 
-- Monday, Nov 9
-- Thursday, Nov 12
-- Friday, Nov 13
+- Monday, Nov 9, 4:30-5:30pm
+- Thursday, Nov 12, 4:30-5:30pm
+- Friday, Nov 13, 4:30-5:30pm
 
 [Submit questions for the finalists online](https://chancellorsearch.wisc.edu/submit-a-question-for-candidate-forums/).
 

@@ -19,8 +19,7 @@ Until spring comes, find us in the Rathskellar. (_Nov 2, Dec 7, Feb 1, Mar 1, Ap
 
 ### Take action
 
-Three finalists in the [UW-Madison Chancellor
-search](https://www.wisconsin.edu/news/archive/university-of-wisconsin-madison-chancellor-search-and-screen-committee-named)
+Three finalists in the [UW-Madison Chancellor search](https://chancellorsearch.wisc.edu/)
 will give public presentations in Tripp Commons at the Memorial Union:
 
 - Monday, Nov 9, 4:30-5:30pm

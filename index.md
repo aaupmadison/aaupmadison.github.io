@@ -19,9 +19,16 @@ Until spring comes, find us in the Rathskellar. (_Nov 2, Dec 7, Feb 1, Mar 1, Ap
 
 ### Take action
 
-The [UW-Madison Chancellor
+Three finalists in the [UW-Madison Chancellor
 search](https://www.wisconsin.edu/news/archive/university-of-wisconsin-madison-chancellor-search-and-screen-committee-named)
-is ongoing.
+will give public presentations in Tripp Commons at the Memorial Union:
+
+- Monday, Nov 9
+- Thursday, Nov 12
+- Friday, Nov 13
+
+[Submit questions for the finalists online](https://chancellorsearch.wisc.edu/submit-a-question-for-candidate-forums/).
+
 
 (The [UW System President search](https://www.wisconsin.edu/presidential-search-2026/)
 was just completed. Of three finalists, the regents chose

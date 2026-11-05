@@ -20,14 +20,31 @@ Until spring comes, find us in the Rathskellar. (_Nov 2, Dec 7, Feb 1, Mar 1, Ap
 ### Take action
 
 Three finalists in the [UW-Madison Chancellor search](https://chancellorsearch.wisc.edu/)
+have been announced. They
 will give public presentations in Tripp Commons at the Memorial Union:
 
-- Monday, Nov 9, 4:30-5:30pm
-- Thursday, Nov 12, 4:30-5:30pm
-- Friday, Nov 13, 4:30-5:30pm
+- Monday, Nov 9, 4:30-5:30pm, [**Rashid
+  Bashir**](https://bioengineering.illinois.edu/people/rbashir), Dean
+  of College of Engineering, University of Illinois Urbana-Champaign
 
-[Submit questions for the finalists online](https://chancellorsearch.wisc.edu/submit-a-question-for-candidate-forums/)
-by 5pm on Wednesday Nov 5.
+- Thursday, Nov 12, 4:30-5:30pm, [**John
+  Coleman**](https://j-coleman.com/), Provost, University of Illinois
+  Urbana-Champaign (and Professor of Political Science)
+
+- Friday, Nov 13, 4:30-5:30pm, [**Radenka
+  Maric**](https://engineering.uconn.edu/faculty/cbe/radenka-maric/),
+  President, University of Connecticut (and Professor of Chemical and
+  Biomolecular Engineering)
+
+Biographies and CVs are avaliable at
+<https://chancellorsearch.wisc.edu/>:
+
+- [Rashid Bashir](https://chancellorsearch.wisc.edu/rashid-bashir/)
+- [John Coleman](https://chancellorsearch.wisc.edu/john-coleman/)
+- [Radenka Maric](https://chancellorsearch.wisc.edu/radenka-maric/)
+
+[Provide feedback on the finalists online](https://go.wisc.edu/finalist_feedback)
+by 10:30am on Saturday, Nov 14.
 
 
 (The [UW System President search](https://www.wisconsin.edu/presidential-search-2026/)
